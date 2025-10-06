@@ -1,1 +1,24 @@
-# spammy
+# HEY EVERY !! [[BIG SHOT]]
+
+## WELCOME TO THE [[Number 1 Rated]] DIGITAL CARNIVAL OF SPAMNBUN!!!
+
+![Spamton](https://preview.redd.it/spamton-pixel-art-v0-zlrh9bf42bbb1.png?width=2913&format=png&auto=webp&s=73c802809265e6bd5c33f7a91200a6876666697d)
+
+---
+
+## [[FACTS AND DEALS]] JUST FOR YOU:
+
+- **AGE:** 18 (YEP, THAT'S [[EIGHTEEN]] YEARS OF [[HYPERLINK BLOCKED]])
+- **PERSONALITY:** ENTP — THE MASTER OF [[UNEXPECTED DEALS]] AND [[HOT TAKES]]
+- **FACT:** THE IMAGE ABOVE ISN'T MINE—ALL [[KROMER]] GOES TO THE ORIGINAL ARTIST!
+
+---
+
+## [[LOOKING FOR A BARGAIN?]]  
+SORRY, NO CONTACT INFO! THIS [[BIG SHOT]] RIDES SOLO (AND SO DO THE [[DEALS]]).
+
+---
+
+> “NOW’S YOUR CHANCE TO BE A [[BIG SHOT]]!!”
+
+---
