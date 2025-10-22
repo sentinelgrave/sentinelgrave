@@ -1,24 +1,24 @@
-# HEY EVERY !! [[BIG SHOT]]
+# GRAVES — OPERATOR PROFILE
 
-## WELCOME TO THE [[Number 1 Rated]] DIGITAL CARNIVAL OF SPAMNBUN!!!
+## OPERATIONAL DOSSIER: serarecon
 
-![Spamton](https://preview.redd.it/spamton-pixel-art-v0-zlrh9bf42bbb1.png?width=2913&format=png&auto=webp&s=73c802809265e6bd5c33f7a91200a6876666697d)
-
----
-
-## [[FACTS AND DEALS]] JUST FOR YOU:
-
-- **AGE:** 18 (YEP, THAT'S [[EIGHTEEN]] YEARS OF [[HYPERLINK BLOCKED]])
-- **PERSONALITY:** ENTP — THE MASTER OF [[UNEXPECTED DEALS]] AND [[HOT TAKES]]
-- **FACT:** THE IMAGE ABOVE ISN'T MINE—ALL [[KROMER]] GOES TO THE ORIGINAL ARTIST!
+![Operator Image](https://i.pinimg.com/1200x/26/24/83/2624833b07b2706b1bc597eab350944e.jpg)
 
 ---
 
-## [[LOOKING FOR A BARGAIN?]]  
-SORRY, NO CONTACT INFO! THIS [[BIG SHOT]] RIDES SOLO (AND SO DO THE [[DEALS]]).
+## SERVICE RECORD
+
+- **AGE:** 18
+- **PERSONALITY:** ENTP — tactical improviser, quick on decisions, adaptable under pressure
+- **FACT:** The image above is not mine — credits to the original artist (source: https://i.pinimg.com/1200x/26/24/83/2624833b07b2706b1bc597eab350944e.jpg)
 
 ---
 
-> “NOW’S YOUR CHANCE TO BE A [[BIG SHOT]]!!”
+## STATUS
+No contact information provided. This operator works alone and conducts all activities through this profile.
+
+---
+
+> "Stay sharp. Move fast. Finish the job."
 
 ---
